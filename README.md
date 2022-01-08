@@ -1,0 +1,1 @@
+# APPsimplesDecadastroDeSeriesem.NET
